@@ -1,4 +1,4 @@
-#  
+#  Experience aura ascension like never before with smart Scripts for aura ascension, the #1 Script. Includes invisibility and custom skins for
 
 
 
